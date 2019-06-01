@@ -15,4 +15,4 @@ At least it seems like it should be possible since it's a specific instance of t
 ##### More famous examples
 [The wikipedia article on recursion](https://en.wikipedia.org/wiki/Recursion) has more well-known examples.
 
-- EOF
+##### EOF
