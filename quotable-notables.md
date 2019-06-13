@@ -4,9 +4,11 @@
 
 - If you're not in the arena getting your butt kicked too, I'm not interested in your feedback. - Brene Brown
 	
-- That would be a good idea. - Mahatma Gandhi, upon being asked,  “what do you think of modern civilization?" 
+- That would be a good idea. - Mahatma Gandhi, when asked,  “What do you think of modern civilization?" 
 
-[This may just be apocryphal, but it seems like something he'd say and regardless, it's a great quote.]
+	[This may just be apocryphal, but it seems like something he'd say. Regardless, it's a great quote.]
+
+- Don't explain your philosophy. Embody it. - Epictetus
 
 #### Yogi Berra section
 
