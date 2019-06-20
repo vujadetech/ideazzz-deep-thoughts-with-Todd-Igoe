@@ -10,6 +10,14 @@
 
 - Don't explain your philosophy. Embody it. - Epictetus
 
+#### Quotes from me, which you have probably never heard before, so please spread the word
+
+- [Compatibilism](https://en.wikipedia.org/wiki/Compatibilism) is just [determinism](https://en.wikipedia.org/wiki/Determinism) with low self-esteem. -- Todd Igoe
+
+- Arrogance isn't confidence squared. -- Todd Igoe
+
+
+
 #### Yogi Berra section
 
 - When you come to a fork in the road, take it.
