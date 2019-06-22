@@ -1,0 +1,12 @@
+#### Geek purgatory: not purely intellectual, but then again not purely funny, so these ~~jokes~~ observations shall languish in geek comedy purgatory
+
+- _Vacuously true_ is a phrase used by mathematicians and others who are mathematically inclined, physicists for example, to indicate that a statement is technically true, but not in an earth-shattering sort of way. A common context is a proof in set theory which must handle the case of a theorem when it's applied to the empty set before moving on to more interesting cases, like [higher order infinities](https://en.wikipedia.org/wiki/Georg_Cantor#Continuum_hypothesis). Paradoxically, vacuous cases can cause considerable confusion. The reason being that any statement which is quantified over the empty set must be true (vacuously) because no counterexample could exist. The set is empty after all; it contains nothing and thus, [a fortiori](https://en.wikipedia.org/wiki/Argumentum_a_fortiori), it contains no counterexample to any statement, however absurd that statement might be. For example, consider the statement,
+> All even primes larger than 2 are odd numbers.
+
+Now there is only one even prime number, namely 2, so the set of all even prime numbers larger than 2 is the empty set. Thus the previous statement reduces to...
+
+> Every member of the empty set is an odd number.
+
+However pointless, that is a true statement. If you believe otherwise, then how would you disprove it? If you can find a member of the empty set that's not an odd number, then you have found a counterexample and you're done. But good luck with that since the empty set has no members at all, so in particular, it has no members about which one could say (truthfully or otherwise) "this is not an odd number." Therefore, the statement "All even primes larger than 2 are odd numbers" is true, even if it isn't useful.
+
+A good example of a vacuously true statement "in the wild" was [a tweet from _Netflix_ addressing a petition to cancel _Good Omens_](https://decider.com/2019/06/21/netflix-amazon-respond-good-omens-petition/). The petition was trivial to address. _Netflix_ can easily promise not to make another episode of _Good Omens_ for the (vacuously) true reason that _they never made an episode of it in the first place_ - [it's produced by __Amazon Prime__](https://www.amazon.com/dp/B07FMHTRFF)!
