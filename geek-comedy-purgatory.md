@@ -1,7 +1,5 @@
 #### Geek purgatory: not purely intellectual, but then again not purely funny, so these ~~jokes~~ observations shall languish in geek comedy purgatory
 
-joke about NYC police at the Crucifixion "Alright, show's over people. Move along, nothin' to see here ..." 
-
 - The phrase _vacuously true_ is used by mathematicians and others who are mathematically inclined, physicists for example, to indicate that a statement is technically true, but not in an earth-shattering sort of way. A common context is a proof in set theory which must handle the case of a theorem when it's applied to the empty set before moving on to more interesting cases, like [higher order infinities](https://en.wikipedia.org/wiki/Georg_Cantor#Continuum_hypothesis). That reminds me, apropos [the controversy that we're leading to](https://www.cnn.com/2019/06/20/entertainment/good-omens-petition-netflix-amazon-trnd/index.html), what did the NYC policeman say after the Crucifixion? "Alright, show's over people. Move along, nothin' to see here ..." But seriously folks,  vacuous cases can - paradoxically - cause considerable confusion. The reason being that any statement which is quantified over the empty set must be true (vacuously) because no counterexample could exist. The set is empty after all; it contains nothing and thus, [a fortiori](https://en.wikipedia.org/wiki/Argumentum_a_fortiori), it contains no counterexample to any statement, however absurd that statement might be. For example, consider the statement,
 > All even primes larger than 2 are odd numbers.
 
