@@ -16,7 +16,9 @@
 
 - Arrogance isn't confidence squared. -- Todd Igoe
 
+- Note that "foolproof" begins with "fool." -- Todd Igoe 
 
+- I have a policy regarding stupid questions. Please don't ask me what it is. -- Todd Igoe
 
 #### Yogi Berra section
 
