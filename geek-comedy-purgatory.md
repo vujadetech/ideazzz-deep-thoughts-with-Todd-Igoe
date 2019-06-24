@@ -1,4 +1,4 @@
-#### Geek purgatory: not purely intellectual, but then again not purely funny, so these ~~jokes~~ observations shall languish in geek comedy purgatory
+#### Geek purgatory: not purely intellectual, but then again not purely funny, so these ~~jokes~~ observations shall languish in geek comedy purgatory [IN PROGRESS]
 
 - The phrase _vacuously true_ is used by mathematicians and others who are mathematically inclined, physicists for example, to indicate that a statement is technically true, but not in an earth-shattering sort of way. A common context is a proof in set theory which must handle the case of a theorem when it's applied to the empty set before moving on to more interesting cases, like [higher order infinities](https://en.wikipedia.org/wiki/Georg_Cantor#Continuum_hypothesis). That reminds me, apropos [the controversy that we're leading to](https://www.cnn.com/2019/06/20/entertainment/good-omens-petition-netflix-amazon-trnd/index.html), what did the NYC policeman say after the Crucifixion? "Alright, show's over people. Move along, nothin' to see here ..." But seriously folks,  vacuous cases can - paradoxically - cause considerable confusion. The reason being that any statement which is quantified over the empty set must be true (vacuously) because no counterexample could exist. The set is empty after all; it contains nothing and thus, [a fortiori](https://en.wikipedia.org/wiki/Argumentum_a_fortiori), it contains no counterexample to any statement, however absurd that statement might be. For example, consider the statement,
 > All even primes larger than 2 are odd numbers.
@@ -12,3 +12,17 @@ However pointless, that is a true statement. If you believe otherwise, then how 
 A good example of a vacuously true statement "in the wild" was [a tweet from _Netflix_ addressing a petition to cancel _Good Omens_](https://decider.com/2019/06/21/netflix-amazon-respond-good-omens-petition/). The petition was trivial to address. _Netflix_ can easily promise not to make another episode of _Good Omens_ for the (vacuously) true reason that _they never made an episode of it in the first place_ - [it's produced by __Amazon Prime__](https://www.amazon.com/dp/B07FMHTRFF)!
 
 - Morrissey cancelled his sold-out concert in Los Angeles, CA upon finding out that the only reason the show sold out is that [he's extremely popular among Latinos](https://www.washingtonpost.com/posteverything/wp/2014/10/08/why-do-mexican-americans-love-morrissey-so-much/?noredirect=on&utm_term=.14144eb64aa0). "I don't want your vote - I mean, concert ticket money - just because my lyrical and vocal style surprisingly resonates disproportiantely with Latinos. You should want me for who I am as a person." Concertgoers' concerns were not assuaged when it was announced that instead of issuing refunds, the show would go on as scheduled with headliner Ricky Martin.
+
+- Doubling down! Amidst staunch criticism of Trump's plan to build a "big, beautiful wall" along the 2000 mile border 
+
+Although *Make America Great Again ** Again** then normal* sdfs
+
+sdf *Make America Great Again **Again** c * campaign _
+
+blah *one star **one more** back to one*
+
+- ***Rock the Primary!***
+
+- The NSA and FBI have issued a joint security warning due to an ... which indicate that on February 14, 2020, hundreds of Mexicans are planning to cross the US border and steal Americans' hearts.
+
+- Every year thousands of Mexicans cross the US border and steal jobs from American actors.
