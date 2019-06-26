@@ -29,8 +29,16 @@ Although Mr. Trump's augmented wall/catapult policy is more unrealistic than the
 
 - Every year thousands of Mexicans cross the US border and steal jobs from American actors. Whether it . Even worse is Kate Castillo, or should I call her _Señorita Desvergonzada (Miss Shameless)_? 
 she's horning in on American journalism as well.
-Sean Penn could have interviewed El Chapo with help from an American like Cameron Diaz or John Quiñones\*. If we can't ensure that jobs which involve interviewing the most notorious living leader of a Mexican drug cartel are given to Americans, what hope have we for our economic future?
+Sean Penn could have interviewed El Chapo with help from an American like Cameron Diaz or John Quiñones\*. If we can't ensure that jobs which entail interviewing the most notorious living leader of a Mexican drug cartel are given to Americans, what hope have we for our economic future?
 
 Every time Kate Castillo is cast in a Hollywood movie, she's taking roles that could have been portrayed by American actresses like Cameron Diaz and Selena Gomez. And for roles that are gender-neutral, American actors like Luis Guzmán, Danny Trujillo and Jimmy Smits. 
 
-\* Fun Fact: [John Quiñones'](https://en.wikipedia.org/wiki/John_Qui%C3%B1ones) Indian name is [_Hides with Cameras_](https://en.wikipedia.org/wiki/Dances_with_Wolves).
+\* Fun Fact: [John Quiñones'](https://en.wikipedia.org/w/index.php?title=What_Would_You_Do%3F_(2008_TV_program)&_%28ABC_News_series%29=) Indian name is [_Hides with Cameras_](https://en.wikipedia.org/wiki/Dances_with_Wolves).
+
+- Rap music is running dangerously low on triplets. Although the triplet quota is nearly exhausted, there is still no consensus among rappers, producers and recording engineers on the best way to deal with the triplet shortage. Producer Rick Rubin has stated that the current mixes of Kendrick Lamar's forthcoming album _Tripless_ don't sound right, most likely because an eighth note followed by two sixteenth notes was used everywhere that there otherwise would have been an eighth note triplet.
+
+- Situations wanted: Seeking other musicians named Todd to join my _Led Zeppelin_ tribute band _Hammer of the Todds_.
+
+- Tonight the Royal Institute of Philosophy will debate the following question, which is as incendiary as it is devisive: _Does Todd exist?_ [I'm seated on the side of the stage.] William Lane Craig will provide for the affirmative an ontological argument based on the being and necessity of Todd. But before Professor Craig offers his rebuttal, we begin with Professor Richard Dawkins, who hopes to persuade us of his negative claim, _"There is no Todd."_
+
+
