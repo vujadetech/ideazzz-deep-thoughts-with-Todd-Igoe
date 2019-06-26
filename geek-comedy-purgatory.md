@@ -35,7 +35,7 @@ Every time Kate Castillo is cast in a Hollywood movie, she's taking roles that c
 
 \* Fun Fact: [John Quiñones'](https://en.wikipedia.org/w/index.php?title=What_Would_You_Do%3F_(2008_TV_program)&_%28ABC_News_series%29=) Indian name is [_Hides with Cameras_](https://en.wikipedia.org/wiki/Dances_with_Wolves).
 
-- Rap music is running dangerously low on triplets. Although the triplet quota is nearly exhausted, there is still no consensus among rappers, producers/recording engineers and musicians on a solution to the triplet shortage. Producer Rick Rubin has revealed that the initial mixes of Kendrick Lamar's forthcoming album, _Tripletless_, sound off because there is an eighth note and two sixteenth notes everywhere that there otherwise would have been a quarter note triplet.
+- Rap music is running dangerously low on triplets. Although the triplet quota is nearly exhausted, there is still no consensus among rappers, producers/recording engineers and musicians on a solution to the triplet shortage. Producer Rick Rubin has revealed that initial mixes of Kendrick Lamar's forthcoming album, _Tripletless_, sound off because there is an eighth note and two sixteenth notes everywhere that there otherwise would have been a quarter note triplet. In a joint research effort by MIT and Cal Tech, music scientists have devised a method for abating the rate of rap triplet consumption by sampling triplets from ballroom waltzes, which have an excess of triplets.
 
 - Situations wanted: Seeking other musicians named Todd to join my _Led Zeppelin_ tribute band _Hammer of the Todds_.
 
