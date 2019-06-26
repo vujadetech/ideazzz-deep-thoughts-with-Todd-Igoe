@@ -39,6 +39,6 @@ Every time Kate Castillo is cast in a Hollywood movie, she's taking roles that c
 
 - Situations wanted: Seeking other musicians named Todd to join my _Led Zeppelin_ tribute band _Hammer of the Todds_.
 
-- Tonight the Royal Institute of Philosophy will debate the following question, which is as incendiary as it is devisive: _Does Todd exist?_ [I'm seated on the side of the stage.] William Lane Craig will provide for the affirmative an ontological argument based on the being and necessity of Todd. But before Professor Craig offers his rebuttal, we begin with Professor Richard Dawkins, who hopes to persuade us of his negative claim, _"There is no Todd."_
+- Tonight the Royal Institute of Philosophy will debate the following question, which is as incendiary as it is divisive: _Does Todd exist?_ [I'm seated on the side of the stage.] William Lane Craig will provide for the affirmative an ontological argument based on the being and necessity of Todd. But before Professor Craig offers his rebuttal, we begin with Professor Richard Dawkins, who hopes to persuade us of his negative claim, _"There is no Todd."_
 
 
