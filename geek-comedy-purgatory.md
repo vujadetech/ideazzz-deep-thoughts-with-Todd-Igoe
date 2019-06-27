@@ -39,6 +39,7 @@ Every time Kate Castillo is cast in a Hollywood movie, she's taking roles that c
 
 - Situations wanted: Seeking other musicians named Todd to join my _Led Zeppelin_ tribute band _Hammer of the Todds_.
 
-- Tonight the Royal Institute of Philosophy will debate a question which is as incendiary as it is divisive: _Does Todd exist?_ [I'm seated on the side of the stage.] William Lane Craig will provide an ontological argument for the affirmative based on the being and necessity of Todd. But we begin with Professor Richard Dawkins, who hopes to persuade us, _"There is no Todd."_
+- Tonight the Royal Institute of Philosophy will debate a question which is as incendiary as it is divisive: _Does Todd exist?_ [I'm seated on the side of the stage.] William Lane Craig will provide an ontological argument in the affirmative based on the being and necessity of Todd. But we begin with Professor Richard Dawkins, who hopes to persuade us, _"There is no Todd."_
 
+- Scandal in Hollywood! Yet another celebrity sex scandal, this time involving Ryan Gosling. Thousands of women and several hundred men have come forward with claims that Mr. Gosling never once groped, propositioned, or otherwise behaved inappropriately towards them, despite the fact that they desperately wanted him to do so. 
 
