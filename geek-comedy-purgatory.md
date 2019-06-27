@@ -43,6 +43,9 @@ Every time Kate Castillo is cast in a Hollywood movie, she's taking roles that c
 
 - Scandal in Hollywood! There's yet another celebrity sex scandal, and who's the culprit this time? Brace yourself ... it's actor Ryan Gosling! Thousands of women and several hundred men have come forward with complaints that he never once groped, propositioned, or otherwise behaved inappropriately towards them, despite the fact that they desperately wanted him to do so. There's even a hashtag, #MeThree, which was coined by a couple when Mr. Gosling declined their invitation to a ménage à trois.
 
-- From the TechDesk: AI researchers at MIT's Media Lab have a team of robots which have taught each other how to mime! [show a bot doing "the box" mime and two robots doing the "cowboy lasso" on the dance floor]
+- From the TechDesk: AI researchers at MIT's Media Lab have a team of robots that taught each other how to mime! [show a bot doing "the box" mime and two robots doing the "cowboy lasso" on the dance floor]
+Sure, if a robot can pick up a jar of water and pour it into a cup, that's impressive. But what about a robot that can _pretend_ to do that? Science FTW!
+
+- The USCIS (U.S. Citizenship and Immigration Services) has reported a precipitous decline in immigration from Mexico. The reason? Potential immigrants are discovering that most Americans are crazy as fuck. ... Unfortunately Ms. Diaz declined to be interviewed in San Diego, explaining that she would be less likely to perish in a mass shooting by staying in a safe city like Tijuana.
 
 
