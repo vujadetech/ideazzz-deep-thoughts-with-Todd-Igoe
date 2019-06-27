@@ -41,5 +41,6 @@ Every time Kate Castillo is cast in a Hollywood movie, she's taking roles that c
 
 - Tonight the Royal Institute of Philosophy will debate a question which is as incendiary as it is divisive: _Does Todd exist?_ [I'm seated on the side of the stage.] William Lane Craig will provide an ontological argument in the affirmative based on the being and necessity of Todd. But we begin with Professor Richard Dawkins, who hopes to persuade us, _"There is no Todd."_
 
-- Scandal in Hollywood! Yet another celebrity sex scandal, this time involving Ryan Gosling. Thousands of women and several hundred men have come forward with claims that Mr. Gosling never once groped, propositioned, or otherwise behaved inappropriately towards them, despite the fact that they desperately wanted him to do so. 
+- Scandal in Hollywood! There's yet another celebrity sex scandal, and who's the culprit this time? Brace yourself ... it's actor Ryan Gosling! Thousands of women and several hundred men have come forward with complaints that he never once groped, propositioned, or otherwise behaved inappropriately towards them, despite the fact that they desperately wanted him to do so. No scandal is complete without a hashtag, and for this one it's #MeThree, which was coined by a couple when Mr. Gosling declined an invitation to join them in a ménage à trois.
+
 

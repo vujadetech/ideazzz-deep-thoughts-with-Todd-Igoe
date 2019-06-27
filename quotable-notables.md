@@ -10,15 +10,24 @@
 
 - Don't explain your philosophy. Embody it. - Epictetus
 
+- For the advice in a joke is sometimes more useful than the most serious teaching. - Balthasar Gracian,
+
+- For luck always compensates her intensity by her brevity. - Balthasar Gracian [for preface to an article on info theory]
+
+- Things are done quickly enough if done well. If just quickly done they can be quickly undone. - Balthasar Gracian
+
+- Make haste slowly. - Balthasar Gracian
+
 #### Quotes from me, which you have probably never heard before, so please spread the word
 
-- [Compatibilism](https://en.wikipedia.org/wiki/Compatibilism) is just [determinism](https://en.wikipedia.org/wiki/Determinism) with low self-esteem. -- Todd Igoe
-
 - Arrogance isn't confidence squared. -- Todd Igoe
+
+- [Compatibilism](https://en.wikipedia.org/wiki/Compatibilism) is just [determinism](https://en.wikipedia.org/wiki/Determinism) with low self-esteem. -- Todd Igoe
 
 - Note that "foolproof" begins with "fool." -- Todd Igoe 
 
 - I have a policy regarding stupid questions. Please don't ask me what it is. -- Todd Igoe
+
 
 #### Yogi Berra section
 
