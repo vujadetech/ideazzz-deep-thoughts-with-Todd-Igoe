@@ -46,6 +46,6 @@ Every time Kate Castillo is cast in a Hollywood movie, she's taking roles that c
 - From the TechDesk: AI researchers at MIT's Media Lab have a team of robots that taught each other how to mime! [show a bot doing "the box" mime and two robots doing the "cowboy lasso" on the dance floor]
 Sure, if a robot can pick up a jar of water and pour it into a cup, that's impressive. But what about a robot that can _pretend_ to do that? Science FTW!
 
-- The USCIS (U.S. Citizenship and Immigration Services) has reported a precipitous decline in immigration from Mexico. The reason? Potential immigrants are discovering that most Americans are crazy as fuck. ... Unfortunately Ms. Diaz declined to be interviewed in San Diego, explaining that she would be less likely to perish in a mass shooting by staying in a safe city like Tijuana.
+- The USCIS (U.S. Citizenship and Immigration Services) has reported a precipitous decline in immigration from Mexico. The reason? Potential immigrants are discovering that most Americans are crazy AF. ... Unfortunately Ms. Diaz declined to be interviewed in San Diego, explaining that she would be less likely to perish in a mass shooting by staying in a safe city like Tijuana.
 
 
