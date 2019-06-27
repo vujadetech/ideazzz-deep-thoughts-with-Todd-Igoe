@@ -41,6 +41,8 @@ Every time Kate Castillo is cast in a Hollywood movie, she's taking roles that c
 
 - Tonight the Royal Institute of Philosophy will debate a question which is as incendiary as it is divisive: _Does Todd exist?_ [I'm seated on the side of the stage.] William Lane Craig will provide an ontological argument in the affirmative based on the being and necessity of Todd. But we begin with Professor Richard Dawkins, who hopes to persuade us, _"There is no Todd."_
 
-- Scandal in Hollywood! There's yet another celebrity sex scandal, and who's the culprit this time? Brace yourself ... it's actor Ryan Gosling! Thousands of women and several hundred men have come forward with complaints that he never once groped, propositioned, or otherwise behaved inappropriately towards them, despite the fact that they desperately wanted him to do so. There's even a hashtag, #MeThree, which was coined by a couple when Mr. Gosling declined their invitation to a ménage à trois. 
+- Scandal in Hollywood! There's yet another celebrity sex scandal, and who's the culprit this time? Brace yourself ... it's actor Ryan Gosling! Thousands of women and several hundred men have come forward with complaints that he never once groped, propositioned, or otherwise behaved inappropriately towards them, despite the fact that they desperately wanted him to do so. There's even a hashtag, #MeThree, which was coined by a couple when Mr. Gosling declined their invitation to a ménage à trois.
+
+- From the TechDesk: AI researchers at MIT's Media Lab have a team of robots which have taught each other how to mime! [show a bot doing "the box" mime and two robots doing the "cowboy lasso" on the dance floor]
 
 
