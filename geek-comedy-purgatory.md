@@ -52,6 +52,6 @@ Sure, if a robot can pick up a jar of water and pour it into a cup, that's impre
 
 - NRA meeting unexpectedly morphs into a master class on Constitutional Law.
 
-- Music scientists undertake research project to determine whether rap songs are music. ... in a minor breakthrough, they managed to prove that Reggae is music, though it only has one song which has been repeatedly recorded with different lyrics.
+- Music scientists undertake research project to determine whether rap songs are music. ... in a minor breakthrough, they managed to prove that Reggae is music, although it only has one song which has been repeatedly recorded with different lyrics.
 
-- Just enter your email address for a free copy of my new ebook, "How tew rite gooder."
+- Just enter your email address for a free copy of my new ebook, "How tow rite gooder."
