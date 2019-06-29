@@ -54,15 +54,18 @@ Sure, if a robot can pick up a jar of water and pour it into a cup, that's impre
 
 - [Country] Music scientists undertake research project to determine whether rap songs are music. ... in a minor breakthrough, they managed to prove that Reggae is music, although it only has one song which has been repeatedly recorded with different lyrics. They also managed to prove a tentative result: conditioning on the assumption that rap is music, Vanilla Ice is not a good rapper.
 
+just discovered the even more perplexing genre of Reggaeton, and is unsure how to even broach the topic with Professor Skeeter.
+
 - Just enter your email address for a free copy of my ebook, "How tow rite gooder."
 
 - White couple adopts adorable black Congressional district. [redlining, yada yada]
 
 - Jerry Garcia diet and exercise regimen: 
 
-The most common reason 
+Be warned that the Garcia method is not for the feint of heart: the most common reason for quitting is the grueling 300 shows per year, not to mention the 45 minute guitar solos.
 
-owing to a lack of the discipline , not to mention the 45 minute guitar solos.
+Keith Richards says, "I swear by it, mate."
 
-Keith Richards, "I swear by it, mate."
+- a spot-on Castillan accent, dazzling the audience with quotes from Cervantes and Gabriel García Márquez.
 
+Mr. Trump was last seen being ushered by Secret Service to Pedro's Cantina for Morrisey karaoke night, where he received a standing ovation for his energetic yet plaintive rendition of The Smith's _Este Hombre Encantador (This Charming Man)_.
