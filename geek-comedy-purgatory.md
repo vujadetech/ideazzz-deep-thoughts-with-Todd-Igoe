@@ -57,3 +57,12 @@ Sure, if a robot can pick up a jar of water and pour it into a cup, that's impre
 - Just enter your email address for a free copy of my ebook, "How tow rite gooder."
 
 - White couple adopts adorable black Congressional district. [redlining, yada yada]
+
+- Jerry Garcia diet and exercise regimen: 
+
+The most common reason 
+
+owing to a lack of the discipline , not to mention the 45 minute guitar solos.
+
+Keith Richards, "I swear by it, mate."
+
