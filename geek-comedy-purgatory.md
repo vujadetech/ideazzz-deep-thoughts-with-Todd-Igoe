@@ -52,6 +52,8 @@ Sure, if a robot can pick up a jar of water and pour it into a cup, that's impre
 
 - NRA meeting unexpectedly morphs into a master class on Constitutional Law.
 
-- Music scientists undertake research project to determine whether rap songs are music. ... in a minor breakthrough, they managed to prove that Reggae is music, although it only has one song which has been repeatedly recorded with different lyrics.
+- [Country] Music scientists undertake research project to determine whether rap songs are music. ... in a minor breakthrough, they managed to prove that Reggae is music, although it only has one song which has been repeatedly recorded with different lyrics. They also managed to prove a tentative result: conditioning on the assumption that rap is music, Vanilla Ice is not a good rapper.
 
-- Just enter your email address for a free copy of my new ebook, "How tow rite gooder."
+- Just enter your email address for a free copy of my ebook, "How tow rite gooder."
+
+- White couple adopts adorable black Congressional district. [redlining, yada yada]
