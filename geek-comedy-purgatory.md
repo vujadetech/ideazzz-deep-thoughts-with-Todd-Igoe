@@ -62,10 +62,14 @@ just discovered the even more perplexing genre of Reggaeton, and is unsure how t
 
 - Jerry Garcia diet and exercise regimen: 
 
-Be warned that the Garcia method is not for the feint of heart: the most common reason for quitting is the grueling 300 shows per year, not to mention the 45 minute guitar solos.
+Be warned that the Garcia method is not for the faint of heart: the most common reason for quitting is the grueling 300 shows per year, not to mention the 45 minute guitar solos.
 
 Keith Richards says, "I swear by it, mate."
 
 - a spot-on Castillan accent, dazzling the audience with quotes from Cervantes and Gabriel García Márquez.
 
-Mr. Trump was last seen being ushered by Secret Service to Pedro's Cantina for Morrisey karaoke night, where he received a standing ovation for his energetic yet plaintive rendition of The Smith's _Este Hombre Encantador (This Charming Man)_.
+Mr. Trump was last seen being ushered by Secret Service to Pedro's Cantina for Morrisey karaoke night, where he received a standing ovation for his spirited but plaintive rendition of The Smith's _Este Hombre Encantador (This Charming Man)_.
+
+- Life Imitates Art Department: Georgia Satellites' lead singer Dan Baird has been accused of sexual misconduct by his girlfriend/aspiring fiancé with claims that although she explained to him, in no uncertain terms, "You ain't git no huggy an' no kissy 'til I get me a weddin' rang," he nevertheless began to huggy and kissy without first giving her a weddin' rang. Mr. Baird received sage counsel from ZZ Top frontman Billy Gibbons, who advised, "Oh Lord, take it downtown. You're just lookin' for some tush." #MeeTew
+
+
