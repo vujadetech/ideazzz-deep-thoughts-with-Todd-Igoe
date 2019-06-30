@@ -74,4 +74,8 @@ Mr. Trump was last seen being ushered by Secret Service to Pedro's Cantina for M
 
 - Life Imitates Art Department: Georgia Satellites' lead singer Dan Baird has been accused of sexual misconduct by his girlfriend/aspiring fiancé, who claims that although she told him, in terms unequivocal, "You ain't git no huggy an' no kissy 'til I git me a weddin' rang," he nevertheless began to huggy and kissy without first givin' her a weddin' rang. Fortunately Mr. Baird received sage counsel from ZZ Top frontman Billy Gibbons, who advised, "You ain't askin' for much. Oh Lord, take it downtown. You jus' lookin' for some tush." #MeeTew
 
-- DNA scientist incorrectly classifies his hideous combover as a convincingly full head of hair. He had identified has hairstyle as being sexy with a 99% confidence interval after rejecting the null hypothesis, which stated that he looks completely ridiculous and isn't fooling anyone. ... erroneously reported that he looks good in a speedo even though he was obviously sucking it in.
+- DNA scientist  misclassifies his hideous combover as a convincingly full head of hair. He had identified has hairstyle as being sexy with a 99% confidence interval after rejecting the null hypothesis, which stated that he looks completely ridiculous and isn't fooling anyone. ... erroneously reported that he looks good in a speedo even though he was obviously sucking it in.
+
+- Robert Plant, Jimmy Page and John Paul Jones are auditioning drummers for their Led Zeppelin tribute band. In particular, drummers named Fred since they hope to call themselves _Fred Zeppelin_.
+
+
