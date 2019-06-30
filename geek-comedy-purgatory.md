@@ -79,6 +79,6 @@ Mr. Trump was last seen being ushered by Secret Service to Pedro's Cantina for M
 - Robert Plant, Jimmy Page and John Paul Jones are auditioning drummers for a Led Zeppelin tribute band. In particular, drummers named Fred, since they hope to call themselves _Fred's Zeppelin_. Page conveyed the urgency of the situation: "We have a gig scheduled at _The Fox and Hounds Tavern & Grill_ in Shropshire on Kent just 3 weeks from now, so we'd like to start practicing by next week, ideally." They auditioned a drummer who was a perfect fit musically, but Fred said he found a better gig with an 80's cover band that didn't involve playing with "a bunch of old geezers," as he put it. If _Fred's Zeppelin_ doesn't materialize, Page and Jones will begin auditioning rappers and DJs for a Led Zeppelin-themed hip-hop group called _Black Dawg_.
 
 - Rock-n-roll philosophy
-	- Billy Gibbons claims, "I was stumblin' through the parking lot of an invisible seven eleven." Now, if it was invisible, then how did he know it was a 7-11 and not, say, a Circle K?
+	- In ZZ Top's song _My Head's in Mississippi_, lead singer Billy Gibbons claims, "I was stumblin' through the parking lot of an invisible seven eleven." Now, if it was invisible, then how did he know it was a 7-11 and not, say, a Circle K?
 
 
