@@ -68,8 +68,10 @@ Keith Richards says, "I swear by it, mate."
 
 - a spot-on Castillan accent, dazzling the audience with quotes from Cervantes and Gabriel García Márquez.
 
+when asked about his foreign policy, pulled a trumpet from the lectern and played _El Degüello_.
+
 Mr. Trump was last seen being ushered by Secret Service to Pedro's Cantina for Morrisey karaoke night, where he received a standing ovation for his spirited but plaintive rendition of The Smith's _Este Hombre Encantador (This Charming Man)_.
 
-- Life Imitates Art Department: Georgia Satellites' lead singer Dan Baird has been accused of sexual misconduct by his girlfriend/aspiring fiancé with claims that although she explained to him, in no uncertain terms, "You ain't git no huggy an' no kissy 'til I get me a weddin' rang," he nevertheless began to huggy and kissy without first givin' her a weddin' rang. Mr. Baird received sage counsel from ZZ Top frontman Billy Gibbons, who advised, "Oh Lord, take it downtown. You're just lookin' for some tush." #MeeTew
+- Life Imitates Art Department: Georgia Satellites' lead singer Dan Baird has been accused of sexual misconduct by his girlfriend/aspiring fiancé, who claims that although she told him, in terms unequivocal, "You ain't git no huggy an' no kissy 'til I git me a weddin' rang," he nevertheless began to huggy and kissy without first givin' her a weddin' rang. Fortunately Mr. Baird received sage counsel from ZZ Top frontman Billy Gibbons, who advised, "You ain't askin' for much. Oh Lord, take it downtown. You jus' lookin' for some tush." #MeeTew
 
-
+- DNA scientist incorrectly classifies his hideous combover as a convincingly full head of hair. He had identified has hairstyle as being sexy with a 99% confidence interval after rejecting the null hypothesis, which stated that he looks completely ridiculous and isn't fooling anyone. ... erroneously reported that he looks good in a speedo even though he was obviously sucking it in.
