@@ -80,8 +80,7 @@ Mr. Trump was last seen being ushered by Secret Service to Pedro's Cantina for M
 
 - Cybersecurity expert/recreational chemist/perennial fugitive John McAfee is hosting karaoke night at Zeena's Kool Spot (known locally as simply _La Barra_ for you non-gringos) in Santa Cruz, Belize every Thursday night at 9pm after dueling piano hour.
 
-Be warned that the show may not start at 9pm sharp, since Mr. McAfee is perpetually under the influence of some combination of cocaine, methamphetamines, scotch, Juul and home-brewed barbiturates. So it's customary for his karaoke show to begin late or even fail to occur at all since he often fails to distinguish am from pm, what year it is, and which hemisphere of the planet he's on. 
-
+Be warned that the show may not start at 9pm sharp, since Mr. McAfee is perpetually under the influence of some combination of cocaine, methamphetamines, scotch, Juul and home-brewed barbiturates. So it's customary for his karaoke show to begin late or even to not occur at all since he often fails to distinguish am from pm, what year it is, and which hemisphere of the planet he's on. 
 
 [Escape (the Piña colada song](https://www.youtube.com/watch?v=Fsj2wdFDmLk)
 
