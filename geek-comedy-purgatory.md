@@ -82,9 +82,9 @@ Mr. Trump was last seen being ushered by Secret Service to Pedro's Cantina for M
 
 Be warned that the show may not start at 9pm sharp, since Mr. McAfee is perpetually under the influence of some combination of cocaine, methamphetamines, scotch, Juul and home-brewed barbiturates. So it's customary for his karaoke show to begin late or even to not occur at all since he often fails to distinguish am from pm, what year it is, and which hemisphere of the planet he's on. 
 
-At press time, Mr. McAfee could be heard arhythmically mumbling an off-key version of Rupert Holmes' [Escape (the Piña colada song)](https://www.youtube.com/watch?v=Fsj2wdFDmLk) from inside a dumpster behind a Tapas restaurant, where he had just woken up from a 14-hour drug induced coma following a 5 day stretch of drug induced wakefulness while he waited for the FBI to finish searching his compound.
+At press time, Mr. McAfee could be heard arhythmically mumbling an off-key version of Rupert Holmes' [Escape (the Piña colada song)](https://www.youtube.com/watch?v=Fsj2wdFDmLk) from inside a dumpster behind a Tapas restaurant, where he had just awoken from a 17-hour drug induced coma following a 4 day stretch of drug induced wakefulness while he ensconced himself in a ditch waiting for the FBI to finish searching his compound.
 
-- Democratic candidate has announced that she intends to lose the Democratic nomination.
+- Democratic candidate Marianne WIlliamson has announced that she intends to lose the Democratic nomination.
 "Harness love ..." 
 much less the Presidency itself.
 democrats which are harnessing xenophobic fear in hopes of surfing a hate wave to Presidential victory, just as Trump did in 2016. 
