@@ -91,7 +91,13 @@ The democrats which are polling best are those who are harnessing xenophobic fea
 
 - [He](https://www.google.com/imgres?imgurl=https%3A%2F%2Fmediadc.brightspotcdn.com%2Fdims4%2Fdefault%2F02489c0%2F2147483647%2Fstrip%2Ftrue%2Fcrop%2F1060x557%2B0%2B22%2Fresize%2F1200x630!%2Fquality%2F90%2F%3Furl%3Dhttps%253A%252F%252Fmediadc.brightspotcdn.com%252Fef%252Fd6%252Fd0cb197445f697934b65f049b3c6%252Fd-b-sgtxuaeo2ec.jpg&imgrefurl=https%3A%2F%2Fwww.washingtonexaminer.com%2Fnews%2Fcory-booker-glares-at-beto-orourke-as-he-answers-first-debate-question-in-spanish&docid=HGn1tAWOuYdU1M&tbnid=d4p9OQ5Lc8h2MM%3A&vet=10ahUKEwjuwKeIw5TjAhXjmuAKHZ9kCdwQMwhAKAIwAg..i&w=1200&h=630&bih=830&biw=1010&q=cory%20booker%20spanish%20glare&ved=0ahUKEwjuwKeIw5TjAhXjmuAKHZ9kCdwQMwhAKAIwAg&iact=mrc&uact=8) got the [looks that kill!](https://www.youtube.com/watch?v=9wPHxQMgdKs)
 
-- Hispandering
+- Hispandering is the Dem's favorite new pastime. The first round of Democratic debates were marked by, in a (Spanish) word, _complaciendo_ (_pandering_). 
+
+The democrats who fared best in post-debate polling were those who served the biggest plates of _el queso grande_. Latinos and Latinas from coast to coast and north of Trump's still unbegun border wall were (figuratively) eating it up.
+
+, former NYC Mayor Michael Bloomberg now has a chance to [showcase his Spanish skills](https://www.youtube.com/watch?v=O9KMgRamba0).
+
+At press time, [Marianne Williamson](https://www.washingtonexaminer.com/news/marianne-williamson-i-need-to-learn-spanish-by-tonight-at-9pm) could be overheard in her dressing room rehearsing the phrase, [Voy a aprovechar el amor para ganar esta elección](https://www.youtube.com/watch?v=0JA6gYXEdwY) (_I'm going to harness love to win this election_).
 
 - Rock-n-roll philosophy
 	- In ZZ Top's song _My Head's in Mississippi_, lead singer Billy Gibbons claims, "I was stumblin' through the parking lot of an invisible seven eleven." Now, if it was invisible, how did he know it was a 7-11 and not, say, a Circle K?
