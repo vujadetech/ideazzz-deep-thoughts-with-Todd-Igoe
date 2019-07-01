@@ -80,13 +80,13 @@ Mr. Trump was last seen being ushered by Secret Service to Pedro's Cantina for M
 
 - Cybersecurity expert/recreational chemist/perennial fugitive John McAfee is hosting karaoke night at Zeena's Kool Spot (known locally as simply _La Barra_ for you non-gringos) in Santa Cruz, Belize every Thursday night at 9pm after dueling piano hour.
 
-Be warned that the show may not start at 9pm sharp, since Mr. McAfee is perpetually under the influence of some combination of cocaine, methamphetamines, scotch, Juul and home-brewed barbiturates. So it's customary for his karaoke show to begin late or even to not occur at all since he often fails to distinguish am from pm, what year it is, and which hemisphere of the planet he's on. 
+Be warned that the show may not start at 9pm sharp, since Mr. McAfee is perpetually under the influence of some combination of cocaine, methamphetamines, scotch, Juul, bath salts, and home-brewed barbiturates. So it's customary for his karaoke show to begin late or even to not occur at all since he often fails to distinguish am from pm, what year it is, and which hemisphere of the planet he's on. 
 
 At press time, Mr. McAfee could be heard arhythmically mumbling an off-key version of Rupert Holmes' [Escape (the Piña colada song)](https://www.youtube.com/watch?v=Fsj2wdFDmLk) from inside a dumpster behind a Tapas restaurant, where he had just awoken from a 17-hour drug induced coma following a 4 day stretch of drug induced wakefulness while he ensconced himself in a ditch under a cardboard box waiting for the FBI to finish searching his compound.
 
-Some advice for anyone who performs at his karaoke night: if McAfee asks whether you'd like to be accompanied by a rhythm section, say "no," because his so-called rhythm section is just his 19 year old girlfriend playing Russian roulette.
+Some advice for anyone who performs at his karaoke night on the occasions when McAfee is lucid enough to host the show: if he asks whether you'd like to be accompanied by a rhythm section, say "no," because McAfee's so-called rhythm section is just his five teenage girlfriends simultaneously playing Russian roulette.
 
-- Democratic candidate Marianne WIlliamson has announced that she intends to lose the Democratic nomination.
+- Democratic candidate Marianne Williamson has announced that she intends to lose the Democratic nomination.
 "Harness love ..." 
 much less the Presidency itself.
 democrats which are harnessing xenophobic fear in hopes of surfing a hate wave to Presidential victory, just as Trump did in 2016. 
