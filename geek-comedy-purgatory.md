@@ -84,12 +84,14 @@ Be warned that the show may not start at 9pm sharp, since Mr. McAfee is perpetua
 
 At press time, Mr. McAfee could be heard arhythmically mumbling an off-key version of Rupert Holmes' [Escape (the Piña Colada Song)](https://www.youtube.com/watch?v=Fsj2wdFDmLk) from inside a dumpster behind a Tapas restaurant, where he had just awoken from a 17-hour drug induced coma following a 4 day stretch of drug induced wakefulness while he ensconced himself in a ditch under a cardboard box waiting for the FBI to finish searching his compound.
 
-
-
 - Democratic candidate Marianne Williamson has announced that she intends to lose the Democratic nomination.
 "Harness love ..." 
 much less the Presidency itself.
-democrats which are harnessing xenophobic fear in hopes of surfing a hate wave to Presidential victory, just as Trump did in 2016. 
+The democrats which are polling best are those who are harnessing xenophobic fear in hopes of surfing a hate wave to Presidential victory, just as Trump did in 2016. 
+
+- [He](https://www.google.com/imgres?imgurl=https%3A%2F%2Fmediadc.brightspotcdn.com%2Fdims4%2Fdefault%2F02489c0%2F2147483647%2Fstrip%2Ftrue%2Fcrop%2F1060x557%2B0%2B22%2Fresize%2F1200x630!%2Fquality%2F90%2F%3Furl%3Dhttps%253A%252F%252Fmediadc.brightspotcdn.com%252Fef%252Fd6%252Fd0cb197445f697934b65f049b3c6%252Fd-b-sgtxuaeo2ec.jpg&imgrefurl=https%3A%2F%2Fwww.washingtonexaminer.com%2Fnews%2Fcory-booker-glares-at-beto-orourke-as-he-answers-first-debate-question-in-spanish&docid=HGn1tAWOuYdU1M&tbnid=d4p9OQ5Lc8h2MM%3A&vet=10ahUKEwjuwKeIw5TjAhXjmuAKHZ9kCdwQMwhAKAIwAg..i&w=1200&h=630&bih=830&biw=1010&q=cory%20booker%20spanish%20glare&ved=0ahUKEwjuwKeIw5TjAhXjmuAKHZ9kCdwQMwhAKAIwAg&iact=mrc&uact=8) got the [looks that kill!](https://www.youtube.com/watch?v=9wPHxQMgdKs)
+
+- Hispandering
 
 - Rock-n-roll philosophy
 	- In ZZ Top's song _My Head's in Mississippi_, lead singer Billy Gibbons claims, "I was stumblin' through the parking lot of an invisible seven eleven." Now, if it was invisible, how did he know it was a 7-11 and not, say, a Circle K?
