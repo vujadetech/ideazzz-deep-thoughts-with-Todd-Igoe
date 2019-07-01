@@ -93,11 +93,13 @@ The democrats which are polling best are those who are harnessing xenophobic fea
 
 - Hispandering is the Dem's favorite new pastime. The first round of Democratic debates were marked by, in a (Spanish) word, _complaciendo_ (_pandering_). 
 
-The democrats who fared best in post-debate polling were those who served the biggest plates of _El Queso Grande_. And Latinos/Latinas from coast to coast and north of Trump's still unbegun border wall were eating it up. 
+The democrats who fared best in post-debate polling were those who served the biggest plates of [_El Queso Grande_](https://time.com/3860269/late-night-with-david-letterman-merrill-markoe/). And Latinos/Latinas from coast to coast and north of Trump's still unbegun border wall were eating it up. 
 
 , former NYC Mayor Michael Bloomberg now has a chance to [showcase his Spanish skills](https://www.youtube.com/watch?v=O9KMgRamba0).
 
 At press time, [Marianne Williamson](https://www.washingtonexaminer.com/news/marianne-williamson-i-need-to-learn-spanish-by-tonight-at-9pm) could be overheard in her dressing room rehearsing the phrase, [Voy a aprovechar el amor para ganar esta elección](https://www.youtube.com/watch?v=0JA6gYXEdwY) (_I'm going to harness love to win this election_).
+
+- [Democratic hopeful Beto O'Rourke](https://www.youtube.com/watch?v=UI0rTtgbpRU) is now delivering all speeches, conversations, emails, communiqués, grocery lists and phrases he screams while making love to his wife entirely in Spanish.
 
 - Rock-n-roll philosophy
 	- In ZZ Top's song _My Head's in Mississippi_, lead singer Billy Gibbons claims, "I was stumblin' through the parking lot of an invisible seven eleven." Now, if it was invisible, how did he know it was a 7-11 and not, say, a Circle K?
