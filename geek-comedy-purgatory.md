@@ -93,7 +93,7 @@ The democrats which are polling best are those who are harnessing xenophobic fea
 
 - Hispandering is the Dem's favorite new pastime. The first round of Democratic debates were marked by, in a (Spanish) word, _complaciendo_ (_pandering_). 
 
-The democrats who fared best in post-debate polling were those who served the biggest plates of _el queso grande_. Latinos and Latinas from coast to coast and north of Trump's still unbegun border wall were (figuratively) eating it up.
+The democrats who fared best in post-debate polling were those who served the biggest plates of _el queso grande_. And Latinos/Latinas from coast to coast and north of Trump's still unbegun border wall were eating it up.
 
 , former NYC Mayor Michael Bloomberg now has a chance to [showcase his Spanish skills](https://www.youtube.com/watch?v=O9KMgRamba0).
 
