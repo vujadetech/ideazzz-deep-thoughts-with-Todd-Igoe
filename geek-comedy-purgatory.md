@@ -76,7 +76,19 @@ Mr. Trump was last seen being ushered by Secret Service to Pedro's Cantina for M
 
 - DNA scientist  misclassifies his hideous combover as a convincingly full head of hair. He had identified has hairstyle as being natural and certainly not absurd at α=0.01 confidence after rejecting the null hypothesis, H<sub>0</sub> = The combover is completely ridiculous and isn't fooling anyone. ... He made another type I error by erroneously reporting that he looks good in a speedo, even though he was obviously sucking it in. 
 
-- Robert Plant, Jimmy Page and John Paul Jones are auditioning drummers for a Led Zeppelin tribute band. In particular, drummers named Fred, since they hope to call themselves _Fred's Zeppelin_. Page conveyed the urgency of the situation: "We've already scheduled a gig as the opening act for Pub Quiz Night at _The Fox and Hounds Tavern & Grill_ in Shropshire, so we'd like to start practicing by next week, ideally." They auditioned a drummer who was a perfect fit musically, but Fred (Micklewhite, of Kent) found a better gig with an 80's cover band that didn't involve playing with "a bunch of old geezers," as he put it. If _Fred's Zeppelin_ doesn't materialize, Page and Jones will begin auditioning rappers and DJs for a Led Zeppelin-themed hip-hop group called _Black Dawg_.
+- Robert Plant, Jimmy Page and John Paul Jones are auditioning drummers for a Led Zeppelin tribute band. In particular, drummers named Fred, since they hope to call themselves _Fred's Zeppelin_. Page conveyed the urgency of the situation: "We've already scheduled a gig as the opening act for Pub Quiz Night at _The Fox and Hounds Tavern & Grill_ in Shropshire, so we'd like to start practicing next week, ideally." They auditioned a drummer who was a perfect fit musically, but Fred (Micklewhite, of Kent) found a better gig with an 80's cover band that didn't involve playing with "a bunch of old geezers," as he put it. If _Fred's Zeppelin_ doesn't materialize, Page and Jones will begin auditioning rappers and DJs for a Led Zeppelin-themed hip-hop group called _Black Dawg_.
+
+- Cybersecurity expert/recreational chemist/perennial fugitive John McAfee is hosting karaoke night at Zeena's Kool Spot (known locally as simply _La Barra_ for you non-gringos) in Santa Cruz, Belize every Thursday night at 9pm after dueling piano hour.
+
+Be warned that the show may not start at 9pm sharp, since Mr. McAfee is perpetually under the influence of some combination of cocaine, methamphetamines, scotch, Juul and home-brewed barbiturates. So it's customary for his karaoke show to begin late or even fail to occur at all since he often fails to distinguish am from pm, what year it is, and which hemisphere of the planet he's on. 
+
+
+[Escape (the Piña colada song](https://www.youtube.com/watch?v=Fsj2wdFDmLk)
+
+- Democratic candidate has announced that she intends to lose the Democratic nomination.
+"Harness love ..." 
+much less the Presidency itself.
+democrats which are harnessing xenophobic fear in hopes of surfing a hate wave to Presidential victory, just as Trump did in 2016. 
 
 - Rock-n-roll philosophy
 	- In ZZ Top's song _My Head's in Mississippi_, lead singer Billy Gibbons claims, "I was stumblin' through the parking lot of an invisible seven eleven." Now, if it was invisible, how did he know it was a 7-11 and not, say, a Circle K?
