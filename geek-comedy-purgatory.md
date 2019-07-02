@@ -107,7 +107,7 @@ At press time, Mr. Trump was penning some purely fictional xenophebic vitriol in
 
 - To prepare for the next round of Democratic debates, Bernie Sanders is tattooing a portrait of Karl Marx on his forehead.
 
-- _Keeping up with the Rodriguezes_ To avoid being outshone by their Democratic colleagues, who are falling overthemselves to prove their Spanish speaking prowess, Republicans are now facing off with each other in Spanish-only rap battles.
+- _Keeping up with the Rodriguezes_ To avoid being outshone by their Democratic colleagues, who are falling over themselves to prove their Spanish speaking prowess, Republicans are now facing off with each other in Spanish-only rap battles.
 
 - Rock-n-roll philosophy
 	- In ZZ Top's song _My Head's in Mississippi_, lead singer Billy Gibbons claims, "I was stumblin' through the parking lot of an invisible seven eleven." Now, if it was invisible, how did he know it was a 7-11 and not, say, a Circle K?
