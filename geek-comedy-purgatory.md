@@ -99,11 +99,11 @@ The democrats who fared best in post-debate polling were those who served the bi
 
 At press time, [Marianne Williamson](https://www.washingtonexaminer.com/news/marianne-williamson-i-need-to-learn-spanish-by-tonight-at-9pm) could be overheard in her dressing room rehearsing the phrase, [Voy a aprovechar el amor para ganar esta elección](https://www.youtube.com/watch?v=0JA6gYXEdwY) (_I'm going to harness love to win this election_).
 
-- [Democratic hopeful Beto O'Rourke](https://www.youtube.com/watch?v=UI0rTtgbpRU) is now delivering all speeches, communiqués, emails, conversations, to-go orders, little-league pep chatter and phrases he screams while making love to his wife entirely in Spanish.
+- [Democratic hopeful Beto O'Rourke](https://www.youtube.com/watch?v=UI0rTtgbpRU) is now delivering all speeches, communiqués, emails, conversations, to-go orders, little-league pep chatter and phrases he screams while making love to his wife entirely in Spanish. When CNN's Christiane Amanpour asked Mr. O'Rourke about his linguistic switch, he replied, "Perdóneme señora, pero no hablo inglés."
 
-- Trump reveals that his border wall policy had always been intended as a metaphor. Trump elaborated, "I'm sorry if that wasn't clear; I had thought my flights of poetic fancy were well-known enough that I obviously wasn't endeavoring to build a 3 billion cubic foot wall along the entire US/Mexico border, in the literal sense of the phrase."
+- Trump reveals that his border wall policy had always been intended as a metaphor. Trump elaborated, "I'm sorry if that wasn't clear; I had thought my flights of poetic fancy were well-known enough that I obviously wasn't endeavoring to build a 3 billion cubic foot wall along the entire US/Mexico border, at least not in the literal sense of the phrase."
 
-penning some xenophebic bluster in the form of a haiku.
+At press time, Mr. Trump was penning some purely fictional xenophebic vitriol in the form of a haiku.
 
 - Rock-n-roll philosophy
 	- In ZZ Top's song _My Head's in Mississippi_, lead singer Billy Gibbons claims, "I was stumblin' through the parking lot of an invisible seven eleven." Now, if it was invisible, how did he know it was a 7-11 and not, say, a Circle K?
