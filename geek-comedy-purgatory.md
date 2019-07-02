@@ -80,7 +80,7 @@ Mr. Trump was last seen being ushered by Secret Service to Pedro's Cantina for M
 
 - Cybersecurity expert/recreational chemist/perennial fugitive John McAfee is hosting karaoke night at Zeena's Kool Spot (known locally as simply _La Barra_ for you non-gringos) in Santa Cruz, Belize every Thursday night at 9pm after dueling piano hour.
 
-Be warned that the show may not start at 9pm sharp, since Mr. McAfee is perpetually under the influence of some combination of cocaine, methamphetamines, scotch, Juul, bath salts, and home-brewed barbiturates. So it's customary for his karaoke show to begin late or even to not occur at all since he often fails to distinguish am from pm, what year it is, and which hemisphere of the planet he's on. (Some advice for anyone who performs at his karaoke night on the occasions when McAfee is lucid enough to host the show: if he asks whether you'd like to be accompanied by a rhythm section, decline, because McAfee's so-called rhythm section is just his five teenaged girlfriends simultaneously playing Russian roulette.)
+Be warned that the show may not start at 9pm sharp, since Mr. McAfee is perpetually under the influence of some combination of cocaine, methamphetamines, scotch, Juul, bath salts, MDMA, ayahuasca and home-brewed barbiturates. So it's customary for his karaoke show to begin late or even to not occur at all since he often fails to distinguish am from pm, what year it is, and which hemisphere of the planet he's on. (Some advice for anyone who performs at his karaoke night on the occasions when McAfee is lucid enough to host the show: if he asks whether you'd like to be accompanied by a rhythm section, decline; McAfee's so-called rhythm section is just his five teenaged girlfriends simultaneously playing Russian roulette.)
 
 At press time, Mr. McAfee could be heard arhythmically mumbling an off-key version of Rupert Holmes' [Escape (the Piña Colada Song)](https://www.youtube.com/watch?v=Fsj2wdFDmLk) from inside a dumpster behind a Tapas restaurant, where he had just awoken from a 17-hour drug induced coma following a 4 day stretch of drug induced wakefulness while he ensconced himself in a ditch under a cardboard box waiting for the FBI to finish searching his compound.
 
@@ -104,6 +104,8 @@ At press time, [Marianne Williamson](https://www.washingtonexaminer.com/news/mar
 - Trump reveals that his border wall policy had always been intended as a metaphor. Trump elaborated, "I'm sorry if that wasn't clear; I had thought my flights of poetic fancy were well-known enough that I obviously wasn't endeavoring to build a 3 billion cubic foot wall along the entire US/Mexico border, at least not in the literal sense of the phrase."
 
 At press time, Mr. Trump was penning some purely fictional xenophebic vitriol in the form of a haiku.
+
+- To prepare for the next round of Democratic debates, Bernie Sanders is tattooing a portrait of Karl Marx on his forehead. 
 
 - Rock-n-roll philosophy
 	- In ZZ Top's song _My Head's in Mississippi_, lead singer Billy Gibbons claims, "I was stumblin' through the parking lot of an invisible seven eleven." Now, if it was invisible, how did he know it was a 7-11 and not, say, a Circle K?
