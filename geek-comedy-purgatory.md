@@ -105,9 +105,9 @@ At press time, [Marianne Williamson](https://www.washingtonexaminer.com/news/mar
 
 At press time, Mr. Trump was penning some purely fictional xenophebic vitriol in the form of a haiku.
 
-- To prepare for the next round of Democratic debates, Bernie Sanders is tattooing a portrait of Karl Marx on his forehead.
+- In an effort to distance himself from "socialistic sissies," referring to the centrist-leaning Democrats that are his competition for the Democratic Party nomination, Bernie Sanders is tattooing a portrait of Karl Marx on his forehead. 
 
-- _Keeping up with the Rodriguezes_ To avoid being outshone by their Democratic colleagues, who are falling over themselves to prove their Spanish speaking prowess, Republicans are now facing off with each other in Spanish-only rap battles.
+- _Keeping up with the Rodriguezes_ To avoid being outshone by their Democratic colleagues, who are falling over each other to prove their Spanish speaking prowess, Republicans are now facing off with each other in Spanish-only rap battles. Donald Trump dispatched Jeb Bush before the contest had even officially begun with his rally cry, "Baja energía Jeb! (Low energy Jeb!)".
 
 - Rock-n-roll philosophy
 	- In ZZ Top's song _My Head's in Mississippi_, lead singer Billy Gibbons claims, "I was stumblin' through the parking lot of an invisible seven eleven." Now, if it was invisible, how did he know it was a 7-11 and not, say, a Circle K?
