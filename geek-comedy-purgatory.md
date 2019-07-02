@@ -101,7 +101,7 @@ At press time, [Marianne Williamson](https://www.washingtonexaminer.com/news/mar
 
 - [Democratic hopeful Beto O'Rourke](https://www.youtube.com/watch?v=UI0rTtgbpRU) is now delivering all speeches, communiqués, emails, conversations, to-go orders, little-league pep chatter and phrases he screams while making love to his wife entirely in Spanish.
 
-- Trump reveals that his border wall policy was only ever intended to be a metaphor. Trump elaborated, "I'm sorry if that wasn't clear; I had thought my flights of poetic fancy were well-known enough that I obviously wasn't endeavoring to build a wall along the entire US/Mexico border, in the literal sense of the phrase."
+- Trump reveals that his border wall policy was only ever intended to be a metaphor. Trump elaborated, "I'm sorry if that wasn't clear; I had thought my flights of poetic fancy were well-known enough that I obviously wasn't endeavoring to build a 3 billion cubic foot wall along the US/Mexico border, in the literal sense of the phrase."
 
 - Rock-n-roll philosophy
 	- In ZZ Top's song _My Head's in Mississippi_, lead singer Billy Gibbons claims, "I was stumblin' through the parking lot of an invisible seven eleven." Now, if it was invisible, how did he know it was a 7-11 and not, say, a Circle K?
