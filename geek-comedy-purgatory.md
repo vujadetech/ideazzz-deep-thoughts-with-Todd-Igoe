@@ -168,11 +168,11 @@ Bernie Sanders
 
 - Affirmative action for Minority Leaders
 
-- Neil Yound and Crazy Horse tribute band offers reconciliation with Lynyrd Skynyrd tribute band.
+- Neil Young and Crazy Horse tribute band offers reconciliation with Lynyrd Skynyrd tribute band.
 
 - Political Scientists, TODO: Politicians in lab suits
 
-- Cybersecurity breach in D.C.: The _Netflix_ account shared by President Trump and Vice President Mike Pence has been compromised by a group of hackers called Netflix & Chillulz. It's unclear whether this was meant to send a message, as Mr. Trump was planning to stream _A Christmas Prince_ for his Christmas-in-July party, or if the timing is just a coincidence, since the hackers haven't made any specific demands. At press time, Trump had marshalled all White House personnel in order to contact every Walgreens, Safeway and Harris Teeter in the D.C. area and find out if their Redbox has any available copies. Jeff Bezos, in a display of bipartisanship, offered Trump and all White House Staff free access to Amazon Prime while Netflix patches the vulnerability, and downloads of Season 1 of _Good Omens_, in case Chillulz jams the Whitehouse's Wifi connection.
+- Cybersecurity breach in D.C.: The _Netflix_ account shared by President Trump and Vice President Mike Pence has been compromised by a group of hackers called Netflix & Chillulz. It's unclear whether this was meant to send a message, as Mr. Trump was planning to stream _A Christmas Prince_ for his Christmas-in-July party, or if the timing is just a coincidence, since the hackers haven't made any specific demands. At press time, Trump had marshalled all White House personnel in order to contact every Walgreens, Safeway and Harris Teeter in the D.C. area and find out if their Redbox has any available copies. Jeff Bezos, in a display of bipartisanship, offered Trump and all White House Staff free access to Amazon Prime while Netflix patches the vulnerability, as well as downloads of Season 1 of _Good Omens_, in case Chillulz jams the Whitehouse's Wifi connection.
 
 - I shant schedule the colour of my aluminium contreversy with my mobile.
 
