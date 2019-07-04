@@ -176,5 +176,9 @@ Bernie Sanders
 
 - I shant schedule the colour of my aluminium contreversy with my mobile.
 
+- _A Christmas Prince_ was originally intended as an adaptation of Machiavelli's _The Prince_ that went off the rails.
+
+- If Kanye West becomes President in 2024, his first act will be to rename The Department of Homeland Security to The Department of Homey-land Security. Seriously people, they can't all be gems.
+
 - Rock-n-roll philosophy
 	- In ZZ Top's song _My Head's in Mississippi_, lead singer Billy Gibbons claims, "I was stumblin' through the parking lot of an invisible seven eleven." Now, if it was invisible, how did he know it was a 7-11 and not, say, a Circle K?
