@@ -172,13 +172,13 @@ Bernie Sanders
 
 - Political Scientists, TODO: Politicians in lab suits
 
-- Cybersecurity breach in D.C.: The _Netflix_ account shared by President Trump and Vice President Mike Pence has been compromised by a group of hackers called Netflix & Chillulz. It's unclear whether this was meant to send a message, as Mr. Trump was planning to stream _A Christmas Prince_ for his Christmas-in-July party, or if the timing is just a coincidence, since the hackers haven't made any specific demands. At press time, Trump had marshalled all White House personnel in order to contact every Walgreens, Safeway and Harris Teeter in the D.C. area and find out if their Redbox has any available copies. Jeff Bezos, in a display of bipartisanship, offered Trump and all White House Staff free access to Amazon Prime while Netflix patches the vulnerability, as well as downloads of Season 1 of _Good Omens_, in case Chillulz jams the Whitehouse's Wifi connection.
+- Cyberattack on Pennsylvania Avenue: The _Netflix_ account shared by President Trump and Vice President Mike Pence has been compromised by a group of hackers called Netflix & Chillulz. It's unclear whether this was meant to send a message, as Mr. Trump was planning to stream _A Christmas Prince_ for his Christmas-in-July party, or if the timing is just a coincidence, since the hackers haven't made any specific demands. At press time, Trump had marshalled all White House personnel in order to contact every Walgreens, Safeway and Harris Teeter in the D.C. area and find out if their Redbox has any available copies of ACP, as Trump and Pence refer to it. Jeff Bezos, in a display of bipartisanship, offered Trump and all White House Staff free access to Amazon Prime while Netflix patches the vulnerability, as well as downloads of Season 1 of _Good Omens_, in case Chillulz jams the Whitehouse's Wifi connection.
 
-- I shant schedule the colour of my aluminium contreversy with my mobile.
+- [Farnsworth McCrustington British RP voice]: I shant schedule the colour of my aluminium contreversy with my mobile. TODO: make this funny somehow. 
 
-- _A Christmas Prince_ was originally intended as an adaptation of Machiavelli's _The Prince_ that went off the rails.
+- _A Christmas Prince_ was originally intended as an adaptation of Machiavelli's _The Prince_ that went off the rails. TODO: Flesh it out some more.
 
-- If Kanye West becomes President in 2024, his first act will be to rename The Department of Homeland Security to The Department of Homey-land Security. Seriously people, they can't all be gems.
+- If Kanye West becomes President in 2024, his first act will be to rename The Department of Homeland Security to The Department of Homey-land Security. Also, filibusters will be replaced with rap battles. TODO: punch it up, not there yet.
 
 - Rock-n-roll philosophy
 	- In ZZ Top's song _My Head's in Mississippi_, lead singer Billy Gibbons claims, "I was stumblin' through the parking lot of an invisible seven eleven." Now, if it was invisible, how did he know it was a 7-11 and not, say, a Circle K?
