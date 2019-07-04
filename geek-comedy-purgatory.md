@@ -146,8 +146,9 @@ The Rowdy Roddy Piper Memorial .
 
 The Bernie Sanders Debate Prep Energy Smoothie
 
+1/2 cup chopped kale leaves
 1 can (8.4 oz) of Red Bull
-6 oz. Vanilla Ensure
+4 oz. Vanilla Ensure
 10 million embryonic stem cells
 200 mg Adderall
 1/2 cup of pomegranate juice, Joi brand (or whatever you call it, the wavy bottle with the heart on the label - my wife makes me put it in)
@@ -171,7 +172,7 @@ Bernie Sanders
 
 - Political Scientists, TODO: Politicians in lab suits
 
-- Cybersecurity breach in D.C.: The _Netflix_ account shared by President Trump and Vice President Mike Pence has been compromised by a group of hackers called Netflix & Chillulz. It's unclear whether this was meant to send a message, as Mr. Trump was planning to stream _A Christmas Prince_ for his Christmas-in-July party, or if the timing is just a coincidence, since the hackers haven't made any specific demands. At press time, Trump had marshalled all White House personnel in order to contact every Walgreens, Safeway and Harris Teeter in the D.C. area and find out if their Redbox has any available copies. Jeff Bezos, in a display of bipartisanship, offered Trump and all White House Staff free access to Amazon Prime while Netflix patches the vulnerability, and downloads of Season 1 of _Good Omens_, in case Chillulz jams the Whitehouse's Wifi connectoin.
+- Cybersecurity breach in D.C.: The _Netflix_ account shared by President Trump and Vice President Mike Pence has been compromised by a group of hackers called Netflix & Chillulz. It's unclear whether this was meant to send a message, as Mr. Trump was planning to stream _A Christmas Prince_ for his Christmas-in-July party, or if the timing is just a coincidence, since the hackers haven't made any specific demands. At press time, Trump had marshalled all White House personnel in order to contact every Walgreens, Safeway and Harris Teeter in the D.C. area and find out if their Redbox has any available copies. Jeff Bezos, in a display of bipartisanship, offered Trump and all White House Staff free access to Amazon Prime while Netflix patches the vulnerability, and downloads of Season 1 of _Good Omens_, in case Chillulz jams the Whitehouse's Wifi connection.
 
 - I shant schedule the colour of my aluminium contreversy with my mobile.
 
