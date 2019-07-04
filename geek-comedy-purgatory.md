@@ -50,12 +50,20 @@ Sure, if a robot can pick up a jar of water and pour it into a cup, that's impre
 
 - Life hacks: A cybersecurity expert's top tips on how keep the NSA from finding out about your secret mancrush on Taylor Kitsch.
 
-- NRA meeting unexpectedly morphs into a master class on Constitutional Law.
+- NRA meeting unexpectedly breaks into a master class on Constitutional Law.
 
 - [Country] Music scientists undertake research project to determine whether rap songs are music. ... in a minor breakthrough, they managed to prove that Reggae is music, although it only has one song which has been repeatedly recorded with different lyrics. They also managed to prove a tentative result: conditioning on the assumption that rap is music, Vanilla Ice is not a good rapper.
 
+"If a tree falls in the forest, does it make a sound? Well, obviously, _yes_ - it makes a sound. That's a stupid question."
+"What if the tree fell on a mattress?"
+"Why in the Sam Hill would you have a mattress out in the middle of the forest?"
+[side comment] "Skeeter might be out there with his cousin Bobby Sue."
+"As usual, you fools are missin' the point. Just cuz a tree that falls makes a sound, it don't mean that sound is a damn rap song." 
+
 just discovered the even more perplexing genre of Reggaeton, and is unsure how to even broach the topic with Professor Skeeter.
 
+\[This could be a full song "If a tree falls in the forest does it make a sound?/Did I walk around that squirrel (James' squirrel/tree [ferocious metaphysical example](https://plato.stanford.edu/entries/pragmatism/)), or did he just walk around/me?
+Did the man go round the squirrel or not? I don't give a/shot but I'll take one/a drink"\]
 - Just enter your email address for a free copy of my ebook, "How tow rite gooder."
 
 - White couple adopts adorable black Congressional district. [redlining, yada yada]
@@ -74,11 +82,11 @@ Mr. Trump was last seen being ushered by Secret Service to Pedro's Cantina for M
 
 - Life Imitates Art Department: Georgia Satellites' lead singer Dan Baird has been accused of sexual misconduct by his girlfriend/aspiring fiancé, who claims that although she told him, in terms unequivocal, "You ain't git no huggy an' no kissy 'til I git me a weddin' rang," he nevertheless began to huggy and kissy without first givin' her a weddin' rang. Fortunately Mr. Baird received sage counsel from ZZ Top frontman Billy Gibbons, who advised, "You ain't askin' for much. Oh Lord, take it downtown. You jus' lookin' for some tush." #MeeTew
 
-- DNA scientist  misclassifies his hideous combover as a convincingly full head of hair. He had identified has hairstyle as being natural and certainly not absurd at α=0.01 confidence after rejecting the null hypothesis, H<sub>0</sub> = The combover is completely ridiculous and isn't fooling anyone. ... He made another type I error by erroneously reporting that he looks good in a speedo, although he's obviously quite doughy with large love handles, even while obviously sucking it in. 
+- DNA scientist  misclassifies his hideous combover as a convincingly full head of hair. He had identified has hairstyle as being natural and certainly not absurd at α=0.01 confidence after rejecting the null hypothesis, H<sub>0</sub> = The combover is completely ridiculous and isn't fooling anyone. ... He made another type I error by erroneously reporting that he looks good in a speedo, although he's obviously quite doughy with large love handles, even while sucking it in. 
 
-- Robert Plant, Jimmy Page and John Paul Jones are auditioning drummers for a Led Zeppelin tribute band. In particular, drummers named Fred, since they hope to call themselves _Fred's Zeppelin_. Page conveyed the urgency of the situation: "We've already scheduled a gig as the opening act for Pub Quiz Night at _The Fox and Hounds Tavern & Grill_ in Shropshire, so we'd like to start practicing next week, ideally." They auditioned a drummer who was a perfect fit musically, but Fred (Micklewhite, of Kent) found a better gig with an 80's cover band that didn't involve playing with "a bunch of old geezers," as he put it. If _Fred's Zeppelin_ doesn't materialize, Page and Jones will begin auditioning rappers and DJs for a Led Zeppelin-themed hip-hop group called _Black Dawg_.
+- Robert Plant, Jimmy Page and John Paul Jones are auditioning drummers for a Led Zeppelin tribute band. In particular, drummers named Fred, since they hope to call themselves _Fred's Zeppelin_. Page conveyed the urgency of the situation: "We've scheduled a gig as the opening act for Pub Quiz Night at _The Fox and Hounds Tavern & Grill_ in Shropshire, so we'd like to start practicing next week, ideally." They auditioned a drummer who was a perfect fit musically, but Fred (Micklewhite, of Kent) found a better gig with an 80's cover band that didn't involve playing with "a bunch of old geezers," as he put it. If _Fred's Zeppelin_ doesn't materialize, Page and Jones will begin auditioning rappers and DJs for a Led Zeppelin-themed hip-hop group called _Black Dawg_.
 
-- Cybersecurity expert/recreational chemist/perennial fugitive John McAfee is hosting karaoke night at Zeena's Kool Spot (known locally as simply _La Barra_ for you non-gringos) in Santa Cruz, Belize every Thursday night at 9pm after dueling piano hour.
+- Cybersecurity expert/recreational chemist/perennial fugitive John McAfee is hosting karaoke night at Zeena's Kool Spot (known locally as simply _La Barra_ for you non-gringos) in Santa Cruz, Belize every Thursday at 9pm after dueling piano hour.
 
 Be warned that the show may not start at 9pm sharp, since Mr. McAfee is perpetually under the influence of some combination of cocaine, methamphetamines, scotch, Juul, bath salts, MDMA, ayahuasca and home-brewed barbiturates. So it's customary for his karaoke show to begin late or even to not occur at all since he often fails to distinguish am from pm, what year it is, and which hemisphere of the planet he's on. (Some advice for anyone who performs at his karaoke night on the occasions when McAfee is lucid enough to host the show: if he asks whether you'd like to be accompanied by a rhythm section, decline; McAfee's so-called rhythm section is just his five teenaged girlfriends simultaneously playing Russian roulette.)
 
@@ -99,7 +107,7 @@ The democrats who fared best in post-debate polling were those who served the bi
 
 At press time, [Marianne Williamson](https://www.washingtonexaminer.com/news/marianne-williamson-i-need-to-learn-spanish-by-tonight-at-9pm) could be overheard in her dressing room rehearsing the phrase, [Voy a aprovechar el amor para ganar esta elección](https://www.youtube.com/watch?v=0JA6gYXEdwY) (_I'm going to harness love to win this election_).
 
-- [Democratic hopeful Beto O'Rourke](https://www.youtube.com/watch?v=UI0rTtgbpRU) is now delivering all speeches, communiqués, emails, conversations, to-go orders, little-league pep chatter and phrases he screams while making love to his wife entirely in Spanish. When CNN's Christiane Amanpour asked Mr. O'Rourke about his linguistic switch, he replied, "Perdóneme señora, pero no hablo inglés."
+- [Democratic hopeful Beto O'Rourke](https://www.youtube.com/watch?v=UI0rTtgbpRU) is now delivering all speeches, communiqués, emails, to-go orders, little-league pep chatter and phrases he screams while making love to his wife entirely in Spanish. When CNN's Christiane Amanpour attempted to interview Mr. O'Rourke about his linguistic switch, he replied, "Perdóneme señora, pero no hablo inglés."
 
 - Trump reveals that his border wall policy had always been intended as a metaphor. Trump elaborated, "I'm sorry if that wasn't clear; I had thought my flights of poetic fancy were well-known enough that I obviously wasn't endeavoring to build a 3 billion cubic foot wall along the entire US/Mexico border, at least not in the literal sense of the phrase."
 
@@ -107,9 +115,65 @@ At press time, Mr. Trump was penning some purely fictional xenophebic vitriol in
 
 - In an effort to distance himself from "socialistic sissies," referring to the centrist-leaning Democrats that are his competition for the Democratic Party nomination, Bernie Sanders is tattooing a portrait of Karl Marx on his forehead. 
 
-- _Keeping up with the Rodriguezes_ To avoid being outshone by their Democratic colleagues, who are falling over each other to prove their Spanish speaking prowess, Republicans are now facing off with each other in Spanish-only rap battles. Donald Trump dispatched Jeb Bush before the contest had even officially begun with his rally cry, "Baja energía Jeb! (Low energy Jeb!)".
+- _Keeping up with the Rodriguezes_ To avoid being outshone by their Democratic colleagues, who are falling over each other to prove their Spanish speaking prowess, Republicans are squaring off in Spanish-only rap battles. Donald Trump dispatched Jeb Bush before the contest had even officially begun with his rally cry, _Baja energía Jeb! (Low energy Jeb!)_.
+
+- Cory Booker/Elizabeth Warren glaring at Beto "Senor Spanish" O'Rourke pic. Warren's caption: "This fuckin' guy..."/Booker's caption: "Este cabron!"
+
+- [Hank Hill voice, upon hearing the Weeknd's _I can't feel my face_]: The man on the radio is havin' a damn stroke.
+
+- Dwayne "The Rock" Johnson will not run for President in 2020 owing to time constraints. "Trump, Obama, and especially Bush Jr., who took over 1000 vacation days during his 8 years in Office, have all spent an exhorbitant amount of time at golf clubs and vacation resorts. I don't have that kind of free time; I've got things to do," explained Mr. Johnson.
+
+- Dwayne "The Rock" Johnson/Jesse "The Body" Ventura may run as a tag-team ticket in 2020.
+Although Dwayne "The Rock" Johnson previously dismissed plans to run for President in 2020 due to time constraints, he came up with a creative solution by suggesting to fellow wrestler and former Minnesota Governor Jesse "The Body" Ventura that they run as the first tag-team Presidential ticket in US History, which would be a watershed moment for this underrepresented group in American politics.
+
+Neither would be VP of the other. The Presidency would be a tag-team of "The Rock" and "The Body" with John Cena as their VP running mate.
+
+Mr. Ventura would broker all agreements with countries in the Middle East as he is close friends with _The Iron Sheik_. 
+
+EPA: "The Nature Boy" Ric Flair
+
+There is even bipartisan agreement that a tag-team ticket is the only viable option for [taking down Trump](https://www.youtube.com/watch?v=5NsrwH9I9vE).
+
+The Rowdy Roddy Piper Memorial .
+
+- Your perfect Rock/Body: Build a physique that's strong, and a bulletproof political [Weltanschauung](https://en.wikipedia.org/wiki/World_view) with Dwayne "The Rock" Johnson and Jesse "The Body" Ventura.
+
+- Strange Statistics: Amazon has noticed a disproportionately large percentage of _Spanish For Dummies_ being ordered by residents of Washington, D.C. area. Of course, some are being delivered to other parts of the country. In fact 100 copies have been delivered to residences in the county in which a Congressional representative lives, in yet another strange coincidence.
+
+- Which agency do gay govt operatives work for? [The CI-Heeeeyy!](https://www.youtube.com/watch?v=ElfR3P4Rrmk&t=184s)
+
+- At 77, Bernie Sanders is the oldest contender in the Democratic Primary, yet he's also the most energetic. We asked Uncy Bern for the secret to his indefatigable vigor, and he shared this smoothie recipe:
+
+The Bernie Sanders Debate Prep Energy Smoothie
+
+1 can (8.4 oz) of Red Bull
+6 oz. Vanilla Ensure
+10 million embryonic stem cells
+200 mg Adderall
+1/2 cup of pomegranate juice, Joi brand (or whatever you call it, the wavy bottle with the heart on the label - my wife makes me put it in)
+1/4 cup human placenta
+1500 mg shark cartilage
+300 mg Gingko biloba, or whichever Asian medicinal herbs my dealer has in his glove compartment
+1/4 teaspoon cayenne pepper
+3 tbsp chia seeds
+
+I also get a coffee enema four hours before showtime and do 200 burpees a few minutes before I hit the stage.
+
+Here's to Democracy!
+Cheers,
+Bernie Sanders
+
+- Gay Broadway performers appeal to Supreme Court for right to refuse performing in front of straight audience members. 
+
+- Affirmative action for Minority Leaders
+
+- Neil Yound and Crazy Horse tribute band offers reconciliation with Lynyrd Skynyrd tribute band.
+
+- Political Scientists, TODO: Politicians in lab suits
+
+- Cybersecurity breach in D.C.: The _Netflix_ account shared by President Trump and Vice President Mike Pence has been compromised by a group of hackers called Netflix & Chillulz. It's unclear whether this was meant to send a message, as Mr. Trump was planning to stream _A Christmas Prince_ for his Christmas-in-July party, or if the timing is just a coincidence, since the hackers haven't made any specific demands. At press time, Trump had marshalled all White House personnel in order to contact every Walgreens, Safeway and Harris Teeter in the D.C. area and find out if their Redbox has any available copies. Jeff Bezos, in a display of bipartisanship, offered Trump and all White House Staff free access to Amazon Prime while Netflix patches the vulnerability, and downloads of Season 1 of _Good Omens_, in case Chillulz jams the Whitehouse's Wifi connectoin.
+
+- I shant schedule the colour of my aluminium contreversy with my mobile.
 
 - Rock-n-roll philosophy
 	- In ZZ Top's song _My Head's in Mississippi_, lead singer Billy Gibbons claims, "I was stumblin' through the parking lot of an invisible seven eleven." Now, if it was invisible, how did he know it was a 7-11 and not, say, a Circle K?
-
-
