@@ -172,7 +172,7 @@ Bernie Sanders
 
 - Political Scientists, TODO: Politicians in lab suits
 
-- Cyberattack on Pennsylvania Avenue: The _Netflix_ account shared by President Trump and Vice President Mike Pence has been compromised by a group of hackers called Netflix & Chillulz. It's unclear whether this was meant to send a message, as Mr. Trump was planning to stream _A Christmas Prince_ for his Christmas-in-July party, or if the timing is just a coincidence, since the hackers haven't made any specific demands. At press time, Trump had marshalled all White House personnel in order to contact every Walgreens, Safeway and Harris Teeter in the D.C. area and find out if their Redbox has any available copies of ACP, as Trump and Pence refer to it. Jeff Bezos, in a display of bipartisanship, offered Trump and all White House Staff free access to Amazon Prime while Netflix patches the vulnerability, as well as downloads of Season 1 of _Good Omens_, in case Chillulz jams the Whitehouse's Wifi connection.
+- Cyberattack on Pennsylvania Avenue: The _Netflix_ account shared by President Trump and Vice President Mike Pence has been compromised by a group of hackers called Netflix & Chillulz. It's unclear whether this was meant to send a message, as Mr. Trump was planning to stream _A Christmas Prince_ for his Christmas-in-July party, or if the timing is just a coincidence, since the hackers haven't made any specific demands. At press time, Trump had marshalled all White House personnel in order to contact every Walgreens, Safeway and Harris Teeter in the D.C. area and find out if their Redbox has any available copies of ACP, as Trump and Pence refer to it. Jeff Bezos, in a display of corporate bipartisanship, offered Trump and all White House Staff free access to Amazon Prime while Netflix patches the vulnerability, as well as downloads of Season 1 of _Good Omens_, in case Chillulz jams the Whitehouse's Wifi connection.
 
 - [Farnsworth McCrustington British RP voice]: I shant schedule the colour of my aluminium contreversy with my mobile. TODO: make this funny somehow. 
 
@@ -180,5 +180,19 @@ Bernie Sanders
 
 - If Kanye West becomes President in 2024, his first act will be to rename The Department of Homeland Security to The Department of Homey-land Security. Also, filibusters will be replaced with rap battles. TODO: punch it up, not there yet.
 
+- Weird celebrity body parts
+	- Ashton Kutcher's webbed toes
+	- Gerard Butler has love handles
+	- Donald Trump's orange skin and congenital hairpiece
+	- Due to a biking accident when she was 10 years old, Katy Perry looks vaguely like Zooey Deschanel.
+	- Ed Sheerhan's _ATS (Avian Tonsorial Syndrome)_, more commonly known as mussy birdnest hair.
+	- Keith Richard's entire body is extant
+	- Anthony Kiedis' bad tattoo job
+	- Paul Giamatti: his surgeon discovered that he has no distinguishable internal organs - once you cut him open, everything just looks like the inside of a tomato.
+	
+	
+
 - Rock-n-roll philosophy
 	- In ZZ Top's song _My Head's in Mississippi_, lead singer Billy Gibbons claims, "I was stumblin' through the parking lot of an invisible seven eleven." Now, if it was invisible, how did he know it was a 7-11 and not, say, a Circle K?
+	
+
