@@ -180,24 +180,27 @@ Bernie Sanders
 
 - If Kanye West becomes President in 2024, his first act will be to rename The Department of Homeland Security to The Department of Homey-land Security. Also, filibusters will be replaced with rap battles. TODO: punch it up, not there yet.
 
-- Ashton Kutcher's webbed toes. Here's some other weird celebrity body parts
+- Ashton Kutcher has webbed toes. Here's some other weird celebrity body parts
+	- Donald Trump's congenital hairpiece
 	- Gerard Butler has love handles
-	- Donald Trump's orange skin and congenital hairpiece
 	- Due to a biking accident when she was 10 years old, Katy Perry looks vaguely like Zooey Deschanel.
 	- Ed Sheerhan's _ATS (Avian Tonsorial Syndrome)_, more commonly known as mussy birdnest hair.
 	- Keith Richards' entire body is extant
-	- Anthony Kiedis' bad tattoo job
+	- Anthony Kiedis' tattoo that looks like a Port-wine stain
 	- Paul Giamatti: Surgeons discovered that he has no distinguishable internal organs - everything just looks like the inside of a tomato.
 	- Clint Eastwood's eyes can have an intense stare
 	- Ryan Gosling's asymmetric abs: 4 on one side, 3 on the other
 	- Naomi Watts' super smelly armpits
 	- Carrot Top has works-out-too-much torso and grandma-makeup face
+	- Andy Garcia has a conjoined twin still growing in his shoulder, and they bicker incessantly.
+	- Angelie Jolie's mouth is terrible at doing foreign accents
 	- Sarah Jessica Parker's horse/foot face condition
-	- Already well known, but for the sake of compelteness: Kanye has resting bitch face.
-	
+	- Already well known, but for the sake of completeness: Kanye has resting bitch face.
 
+- Local gay black man has scrict, "Don't ax, don't tell" policy.
 
 - Rock-n-roll philosophy
 	- In ZZ Top's song _My Head's in Mississippi_, lead singer Billy Gibbons claims, "I was stumblin' through the parking lot of an invisible seven eleven." Now, if it was invisible, how did he know it was a 7-11 and not, say, a Circle K?
+	
 	
 

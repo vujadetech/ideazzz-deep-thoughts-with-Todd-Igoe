@@ -14,4 +14,7 @@
 
 - My nickname is _Elmore Jams_. "The more jams", or just "More jams". 
 
-- Soy milk in spanish means "I am milk". But I'm not milk - I'm Elmore Jams. We just covered that, right? So at first blush
+- Soy milk in spanish means "I am milk". But I'm not milk - I'm Elmore Jams. We just covered that, right?
+
+- There is a city in North Carolina named Burlington, and also in Vermont. And in both of those cities, there a street named Church Street. Moreover, a church is a place to worship God. Deal with that, science. 
+
