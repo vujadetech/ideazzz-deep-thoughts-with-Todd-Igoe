@@ -186,18 +186,28 @@ Bernie Sanders
 	- Due to a biking accident when she was 10 years old, Katy Perry looks vaguely like Zooey Deschanel.
 	- Ed Sheerhan's _ATS (Avian Tonsorial Syndrome)_, more commonly known as mussy birdnest hair.
 	- Keith Richards' entire body is extant
-	- Anthony Kiedis' tattoo that looks like a Port-wine stain
+	- Anthony Kiedis' botched tattoo that looks like a Port-wine stain birthmark
 	- Paul Giamatti: Surgeons discovered that he has no distinguishable internal organs - everything just looks like the inside of a tomato.
 	- Clint Eastwood's eyes can have an intense stare
 	- Ryan Gosling's asymmetric abs: 4 on one side, 3 on the other
 	- Naomi Watts' super smelly armpits
 	- Carrot Top has works-out-too-much torso and grandma-makeup face
-	- Andy Garcia has a conjoined twin still growing in his shoulder, and they bicker incessantly.
+	- Andy Garcia has a conjoined twin still growing in his shoulder that bickers with him incessantly whenever he isn't filming.
 	- Angelie Jolie's mouth is terrible at doing foreign accents
 	- Sarah Jessica Parker's horse/foot face condition
 	- Already well known, but for the sake of completeness: Kanye has resting bitch face.
 
 - Local gay black man has scrict, "Don't ax, don't tell" policy.
+
+- Appalachain Americans lambast media for its perpetuation of Redneck stereotypes.
+
+- \[Elmore Jams\] As my electrical engineering professor remarked when we were studying equivalent states of a digital logic circuit, a person from New England or the West coast would consider North Carolina and South Carolina to be equivalent states. Not that funny, but for a geek joke, not too shabby. But I digress. Ponder on this: there is North/South Carolina, and North/South Dakota, but not West/East Virginia. Why doesn't Virginia have to call itself East Virginia? Because West Virginia doesn't count. I mean come on, even in West Virginny they know that. 
+
+- New word suggestions
+	- _Shain't_: A contraction of "Shall not," as "ain't" is a contraction for "are not." Just as "shant" is considered pretentious by Brits, except when said by Americans while affecting an obnoxious British accent for (hopefully) comedic effect, "shain't" is reserved for fancier Rednecks, or those who fancy themselves as such.
+	- _Wacker_ A wannabe cracker. Alternatively, _Fracker_ Frontin' as a cracker.
+
+- _Bumpin' Bumpkins_ Sir Isaac Newton and Gottfried Leibniz simultaneously discovered calculus, Alan Turing and Kurt Godel independently proved the undecidability of the halting problem, and yours truly - Hank Igoe over here - coined the phrase "Bumpin' Bumpkins", only to find out that Spongebob Squarepants said it first. It just shows to go ya, great minds run on the same track, I tell you what.
 
 - Rock-n-roll philosophy
 	- In ZZ Top's song _My Head's in Mississippi_, lead singer Billy Gibbons claims, "I was stumblin' through the parking lot of an invisible seven eleven." Now, if it was invisible, how did he know it was a 7-11 and not, say, a Circle K?
