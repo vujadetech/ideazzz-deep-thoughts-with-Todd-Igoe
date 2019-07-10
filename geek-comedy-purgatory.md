@@ -209,6 +209,10 @@ Bernie Sanders
 
 - _Bumpin' Bumpkins_ Sir Isaac Newton and Gottfried Leibniz simultaneously discovered calculus, Alan Turing and Kurt Godel independently proved the undecidability of the halting problem, and yours truly - Hank Igoe over here - coined the phrase "Bumpin' Bumpkins", only to find out that Spongebob Squarepants said it first. It just shows to go ya, great minds run on the same track, I tell you what.
 
+- In Mississippi, Hillbillies will be a minority by 2035. Infographic shows 40% Hispano-Latino, 25% Hillbillies/Rubes/Hicks/White Trash/Rednecks/Yokels/Bumpkins, 22% Black, 10% Asian, 3% Other.
+
+- The internets, and especially them search engines, is cawsing peeple to be bad spellirs.
+
 - Rock-n-roll philosophy
 	- In ZZ Top's song _My Head's in Mississippi_, lead singer Billy Gibbons claims, "I was stumblin' through the parking lot of an invisible seven eleven." Now, if it was invisible, how did he know it was a 7-11 and not, say, a Circle K?
 	
