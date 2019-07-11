@@ -207,14 +207,14 @@ Bernie Sanders
 	- _Shain't_: A contraction of "Shall not," as "ain't" is a contraction for "are not." Just as "shant" is considered pretentious by Brits, except when said by Americans while affecting an obnoxious British accent for (hopefully) comedic effect, "shain't" is reserved for fancier Rednecks, or those who fancy themselves as such.
 	- _Wacker_ A wannabe cracker. Alternatively, _Fracker_ Frontin' as a cracker.
 
-- _Bumpin' Bumpkins_ Sir Isaac Newton and Gottfried Leibniz simultaneously discovered calculus, Alan Turing and Kurt Godel independently proved the undecidability of the halting problem, and yours truly - Hank Igoe over here - coined the phrase "Bumpin' Bumpkins", only to find out that Spongebob Squarepants said it first. It just shows to go ya, great minds run on the same track, I tell you what.
+- _Bumpin' Bumpkins_ Sir Isaac Newton and Gottfried Leibniz simultaneously discovered calculus, Alan Turing and Kurt Godel independently proved the undecidability of the halting problem, and yours truly - Hank Igoe over here - coined the phrase "Bumpin' Bumpkins", only to find out that Spongebob Squarepants said it first. It just shows to go ya, great minds run on the same track, I tell you what. 
 
-- In Mississippi, Hillbillies will be a minority by 2035. Infographic shows 40% Hispano-Latino, 25% Hillbillies/Rubes/Hicks/White Trash/Rednecks/Yokels/Bumpkins, 22% Black, 10% Asian, 3% Other.
+- In Mississippi, Hillbillies will be a minority by 2035. Infographic shows 40% Hispano-Latino, 25% Hillbillies/Rubes/Hicks/White Trash/Rednecks/Yokels/Bumpkins, 22% Black, 10% Asian, 3% Other. 
 
-- The internets, and especially them search engines, is cawsing peeple to be bad spellirs.
+- The internets, and especially them search engines, is cawsing peeple to be bad spellirs. 
+
+- _Twitter Feud!_ Taylor Swift is now embroiled in a Twitter feud with producer Mutt Lange over how many bluegrass banjo solos to include on her forthcoming album. "It's a constant struggle with producers and label reps who want me to water down my Old-Timey bluegrass roots with overproduced tracks that are filled with autotuned vocals, compressed drums, overdubbed guitars, and Pro Tools arranged synthesizer tracks," she explained. "Oh, and by the way, I don't got by 'Taylor Swift' anymore. That's the name my label stuck me with. I'm Cissy Lee Hogg from here on out," she added. The band for her live show will be Old-Timey as well: washtub bass, jug, Jew's harp, hammered dulcimer, washboard and fiddle. Until the conflict is resolved, Ms. ~~Swift~~ Hogg plans to sit on her front porch and play banjo all day. 
 
 - Rock-n-roll philosophy
-	- In ZZ Top's song _My Head's in Mississippi_, lead singer Billy Gibbons claims, "I was stumblin' through the parking lot of an invisible seven eleven." Now, if it was invisible, how did he know it was a 7-11 and not, say, a Circle K?
-	
-	
+	- In ZZ Top's song _My Head's in Mississippi_, lead singer Billy Gibbons claims, "I was stumblin' through the parking lot of an invisible seven eleven." Now, if it was invisible, how did he know it was a 7-11 and not, say, a Circle K? 
 
